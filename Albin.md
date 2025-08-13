@@ -1,4 +1,1 @@
-Haiiiii Guyss Goodmorning 
-Today is day 9th of july 
-
-
+Final year postgraduate student in Econometrics and Financial Technology, seeking a professional opportunity to gain valuable hands-on experience in the realm of finance and technology, with a keen interest in contributing to innovative solutions and expanding my skillset in this dynamic industry. 
