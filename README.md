@@ -15,8 +15,9 @@ Internship experience in stock market research, mutual fund taxation, and candle
 Organised and hosted an IPL-style live auction at my college fest
 Placement Coordinator for MSc Econometrics & FinTech program
 📫 How to Reach Me
-📧 Email: your-email@example.com
-💼 LinkedIn: Your LinkedIn Profile
+📧 Email: albinanu25@gmail.com
+💼 LinkedIn: Background Image
+www.linkedin.com/in/albinanu
 📝 Articles: Contributions to CBS LINE on fintech and sustainable finance
 ⚡ Fun Fact
 I’m equally comfortable working on a regression model and auctioning cricket players to the highest bidder 😄
