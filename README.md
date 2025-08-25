@@ -19,7 +19,7 @@ Passionate about contributing to innovative solutions and expanding skills in th
 ---
 
 ## Internship & Volunteer Experience  
-- **Share Market Analyst**, Share Wealth Securities Pvt Ltd (June 2025 - July 2025)  
+- **Research Analyst**, Share Wealth Securities Pvt Ltd (June 2025 - July 2025)  
 - **Enumerator**, Department of Economics and Statistics, Govt of Kerala (Dec 2022 – Oct 2023)  
 
 ---
